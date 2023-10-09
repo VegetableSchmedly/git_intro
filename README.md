@@ -1,1 +1,4 @@
-Eric Daly
+Eric Daly
+dalyer@oregonstate.edu
+green
+Led Zeppelin
